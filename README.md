@@ -3,6 +3,8 @@ Socialism & Religion
 Appeal to the Moslems of Russia and the East
 https://soviethistory.msu.edu/1921-2/the-muslim-east/the-muslim-east-texts/appeal-to-the-moslems-of-russia-and-the-east/
 
+"What Can We Learn from the Bolsheviks’ Policy Toward Muslims?
+The early Soviet Republic adopted more progressive policies toward Muslims than most Western “democracies” a century later. The following article examines the ways in which the Bolsheviks sought to build alliances with Muslim people, who represented one-in-ten Soviet citizens, in order to fight a common enemy."
 https://www.leftvoice.org/what-can-we-learn-from-the-bolsheviks-policy-toward-muslims/
 
 Female Imams Blaze Trail Amid China's Muslims
@@ -16,6 +18,10 @@ Examples of shared beliefs in interconnectedness and interdependence
 The “true” or “greater” self completely comprehends being an integral part of this web of life and can appreciate those connections. In that vein, the lesser self is self-centered. It is a state of awareness constrained by egoism and selfish desires, in which one has little grasp of the true self.”
 
 https://www.worldtribune.org/2020/awakening-to-the-interconnectedness-of-life/
+
+https://en.m.wikipedia.org/wiki/Liberation_theology#:~:text=Liberation%20theology%20is%20a%20Christian,such%20as%20race%20or%20caste.
+
+https://en.m.wikipedia.org/wiki/Nondualism
 
 “The greatest lie that we tell ourselves is that we are somehow separate from each other and separate from what we perceive to be our Highest Truth (whether that be God, the Tao, Brahma, or our Higher Self). From this sense of separation, it seems, much of the ills of our world ensue”
 
