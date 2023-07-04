@@ -1,4 +1,4 @@
-Socialism & Religion
+Socialism & Spirituality
 
 Appeal to the Moslems of Russia and the East
 https://soviethistory.msu.edu/1921-2/the-muslim-east/the-muslim-east-texts/appeal-to-the-moslems-of-russia-and-the-east/
@@ -36,3 +36,6 @@ https://rumiscircle.com/2013/07/18/come-close/
 “The meaning embodied in Ubuntu is too important to African culture to define it simply as just another communitarian model. Its ultimate meaning must stress that human means must be consistent with human ends. In other words, the freedoms of individuality and community are so strong in African culture that it should be difficult to tell them apart. In short, Ubuntu means human beings need each other in order to be human. This interdependence is just as true in the divine life of God.”
 
 https://religionnews.com/2021/0
+
+Secular, socialist: Recalling Swami Vivekananda’s message of tolerance
+https://www.hindustantimes.com/opinion/secular-socialist-recalling-swami-vivekananda-s-message-of-tolerance/story-ins2tZlcDlWuuhYF73dyiK_amp.html
