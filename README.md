@@ -1,5 +1,9 @@
 Socialism & Spirituality
 
+V. I.   Lenin "Socialism and Religion"
+
+https://www.marxists.org/archive/lenin/works/1905/dec/03.htm
+
 Appeal to the Moslems of Russia and the East
 https://soviethistory.msu.edu/1921-2/the-muslim-east/the-muslim-east-texts/appeal-to-the-moslems-of-russia-and-the-east/
 
